@@ -1,1 +1,0 @@
-# mngad.github.io
